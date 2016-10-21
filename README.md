@@ -1,2 +1,3 @@
 # hello-world
-We are Transforming Africa Continent For the Glory of GOD!
+
+We are INSCatalyst and we are Transforming Africa Continent For the Glory of GOD!
